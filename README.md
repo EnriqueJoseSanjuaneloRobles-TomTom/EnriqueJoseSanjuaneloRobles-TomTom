@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Kik
+- 👀 I’m interested in getting things done.
+- 🌱 I’m currently learning a little bit from everything.
